@@ -1,1 +1,0 @@
-# tezoswallet.github.io
